@@ -1,1 +1,0 @@
-adhi software solution
